@@ -1,1 +1,0 @@
-# thiruvkram.github.io
